@@ -1,4 +1,8 @@
-## Hey, I'm Tom and welcome to my GitHub !<br><br>### I'm looking for an appranticeship in webdev / software dev for the 2025-26 academic year !<br>I plan on getting a Master's degree afterwards, so I'm also loooking for the 2026-28 academic years.<br><br>### 🔥 🔥 🔥<br><br>
+## Hey, I'm Tom and welcome to my GitHub !<br><br>
+### I'm looking for an appranticeship in webdev / software dev for the 2025-26 academic year !<br>
+#### I plan on getting a Master's degree afterwards, so I'm also loooking for the 2026-28 academic years.<br><br>
+
+### 🔥 🔥 🔥<br><br>
 
 
 ## 🌐 Socials:
